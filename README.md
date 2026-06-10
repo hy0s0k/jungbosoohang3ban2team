@@ -1,1 +1,2 @@
-# jungbosoohang3ban2team
+# 정보 수행 3반 2팀
+#선생님 사랑해요
